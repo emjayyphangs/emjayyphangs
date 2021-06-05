@@ -1,6 +1,6 @@
-hey im MJ or crash :]
-uh this is my github
-sobs
+- hey im MJ or crash :]
+- uh this is my github
+- sobs
 
 <!---
 emjayyphangs/emjayyphangs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
