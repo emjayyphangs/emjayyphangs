@@ -1,6 +1,6 @@
-- hey im MJ or crash :]
+- **hey im MJ or crash :]
 - uh this is my github
-- not looking to collab; making minecraft plugins
+- **not** looking to collab; `making minecraft plugins
 - if u wanna support me check out my [ko-fi](https://ko-fi/uhhemjayy) !! 
 <!---
 emjayyphangs/emjayyphangs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
