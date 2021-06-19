@@ -1,4 +1,4 @@
-- **__hey im MJ or Crash__ :]**
+- **__hey im MJ or Crash__ 	(´ ε ' )♡**
 - uh this is my github
 - **not** looking to collab; `making minecraft plugins`
 - if u wanna support me check out my [ko-fi](https://ko-fi.com/uhhemjayy) !! 
